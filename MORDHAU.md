@@ -1,1 +1,1 @@
-- 👋 <a id="Hyperlink example - Mordhau RUS Discord">https://discord.gg/S2hekYW</>
+- 👋**Mordhau RUS** <a id="Mordhau RUS Discord">https://discord.gg/S2hekYW
